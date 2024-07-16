@@ -9,7 +9,7 @@ https://youtu.be/tih6OulII8Q?si=PVse8CbKEZ4Rap33
 
  ملفات البيانات لانشاء داش بورد احترافي 
 
- https://www.youtube.com/watch?v=ef1cByq70uM&t=2590s
+ملفات البيانات تجدونها بالاعلى 
 
 
 
